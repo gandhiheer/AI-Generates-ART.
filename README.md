@@ -1,1 +1,1 @@
-# AI-Generates-ART.
+# AI-Generates-ART
